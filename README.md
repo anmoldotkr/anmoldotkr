@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Devops**
 
-- 📫 How to reach me **anmolnoida09@gmail.com**
+- 📫 How to reach me **anmoldotkr@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/11OJGlqVgFB9wq1YIb_j__XsK1fljFMV-/view?usp=sharing](https://drive.google.com/file/d/11OJGlqVgFB9wq1YIb_j__XsK1fljFMV-/view?usp=sharing)
 
