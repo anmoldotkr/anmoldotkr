@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **anmoldotkr@gmail.com** | **anmolnoida09@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11OJGlqVgFB9wq1YIb_j__XsK1fljFMV-/view?usp=sharing](https://drive.google.com/file/d/11OJGlqVgFB9wq1YIb_j__XsK1fljFMV-/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/drive/u/1/folders/1QyMCMmGtwBcQH23_3w2JEZr02-OnxhWs](https://drive.google.com/drive/u/1/folders/1QyMCMmGtwBcQH23_3w2JEZr02-OnxhWs)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
